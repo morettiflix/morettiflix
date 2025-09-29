@@ -16,6 +16,8 @@
   - Conciertos y festivales musicales de renombre mundial.
   - Premios y ceremonias como los Oscars, Grammys y Golden Globes.
 - **Compatibilidad total**: Funciona en Smart TVs, dispositivos móviles, tablets y computadoras.
+- ![Como Instalar en Android](https://morettiflix.com/instalar-iptv-latino-en-android/)
+
 
 ---
 
